@@ -22,7 +22,7 @@ Und dabei natürlich voneinander lernen.
 Projekte:
 -
 
-Wenn Ihr Vorschläge für Projekte oder Aufträge habt,
+Wenn Ihr Vorschläge für Projekte habt,
 schreib uns hier: [Email](mailto:csdummi.misquality@simplelogin.co)
 
 
