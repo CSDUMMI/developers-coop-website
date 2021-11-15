@@ -1,5 +1,6 @@
 ## Entwicklers Kooperative Hamburg
 [Discord](https://discord.gg/VkDnQgYt)
+[Email](mailto:csdummi.misquality@simplelogin.co)
 
 
 Die Idee ist, dass wir zusammen
