@@ -1,4 +1,4 @@
-## Entwicklers Kooperative Hamburg
+## Gemeinsame Entwicklung und ambitionierte Projekte
 [Discord](https://discord.gg/VkDnQgYt)
 [Email](mailto:csdummi.misquality@simplelogin.co)
 
