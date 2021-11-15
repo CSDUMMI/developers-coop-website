@@ -1,4 +1,4 @@
-## Gemeinsame Entwicklung und ambitionierte Projekte
+## Gemeinsame Entwicklung von ambitionierte Projekte
 [Discord](https://discord.gg/VkDnQgYt)
 [Email](mailto:csdummi.misquality@simplelogin.co)
 
