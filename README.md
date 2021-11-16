@@ -1,5 +1,5 @@
 ## Gemeinsame Entwicklung von ambitionierte Projekte
-[Discord](https://discord.gg/VkDnQgYt)
+[Discord](https://discord.gg/pnHSTg6DEq)
 [Email](mailto:csdummi.misquality@simplelogin.co)
 
 
